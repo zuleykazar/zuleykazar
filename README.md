@@ -1,6 +1,6 @@
 ## Hi there! or Hello world! :raising_hand:
 
-#### Soy Zuleyka Zaraza..Soy una coder en construcción.. 😃
+#### Soy Zuleyka Zaraza..una coder en construcción.. 😃
 
 Web developer? Pythonista? Who knows..
 
