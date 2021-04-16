@@ -24,7 +24,7 @@ Entre lo que he estado aprendiendo está:
 
 :bookmark_tabs: Entre mis proyectos está crear mi propio site para postear esta información y recursos que tambien me han sido utiles..(pronto lo tendrán aquí)
 
-⚡ Me gusta el arte, el diseño e incorporar mis habilidades lógicas a mis proyectos..porque también soy Ingeniero de Petróleo..boom! (seguro no te esperabas esto!)
+⚡ Me gusta el arte, las ilustraciones e incorporar mis habilidades lógicas a mis proyectos..porque también soy Ingeniero de Petróleo..boom! (seguro no te esperabas esto!)
 
 :herb: Si hablamos de hobbies tengo muchos: leer, jardinear, dibujar en CSS, escribir poesía, hacer fotos, la arquitectura, conocer lugares curiosos, descubrir canales/talentos en Youtube, gatitos, etc.. 
 
